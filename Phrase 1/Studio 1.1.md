@@ -1,1 +1,8 @@
-
+Assignment Title: The Last Light
+Prompt: Create a science fiction movie poster featuring an astronaut exploring an abandoned space station floating in deep space. The station should have large metallic buildings, broken windows, and glowing blue lights. Use sharp geometric lines in the walls and panels to make the station look futuristic. Add curved, organic lines from floating wires and plants growing through the cracks to make the station feel abandoned. The largest shape should be the round planet behind the station, while the small astronaut stands in the center of the poster. Use negative space around the astronaut to make the scene feel lonely and empty. The metallic walls should have a rough, scratched texture, while the astronaut's helmet should look smooth and reflective. The station should feel massive and heavy compared to the small astronaut. Use strong contrast between the bright white light coming from the astronaut’s flashlight and the deep blue and black shadows around the station. The flashlight should be the main focal point, drawing the viewer’s attention to the center of the poster. Place the poster title, “The Last Light,” at the bottom in large, futuristic lettering.  
+Vocabulary: 
+Lines: A wide thin mark that can be made with almost any tool.
+Shape: The outline that gives an object a particular form.
+Texture: How you think an object could feel like when you touch it.
+Volume: The amount of space an object occupies.
+Contrast: Opposites that stand out and catch your eye.
