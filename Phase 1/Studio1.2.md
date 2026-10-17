@@ -1,0 +1,12 @@
+**Assignment Title** - The Long Way Home
+
+**Prompt:**
+
+Create a digital illustration for an Acoustic Folk and Americana music album cover. The main subject is a small wooden cabin surrounded by tall trees, wildflowers, and a quiet mountain landscape. The cabin should look old, weathered, with a wooden porch and a guitar leaning against it. The scene should feel peaceful, warm and connected to nature. For value and light, use soft natural lighting from the early morning sun. Place the brightest light around the cabin and the sky while using darker values in the trees and underneath the porch. The shadows should be soft instead of harsh, creating a calm and peaceful mood. Use warm earth tones such as brown, green, cream and soft orange throughout the scene. Create the illusion of space by placing wildflowers and wooden fence posts in the foreground, the cabin in the middle ground and mountains in the background. Make the objects in the foreground larger and more detailed while making the mountains smaller and lighter in value. Overlapping trees and fading colors in the distance will make the landscape appear deeper. Show time and motion through small details in the environment. Leaves and tall grass can appear slightly bent by the wind, and clouds can stretch across the sky to suggest movement. The weathered wood and older-looking cabin can also suggest the passage of time and the history of the place. Create unity by using natural textures and a consistent earth-tone color palette throughout the composition. Include textures such as a weathered wood, rough tree bark, grass and rocks. Add variety with one unexpected element, such as a bright red guitar leaning against the cabin, which creates a strong contrast with the natural colors. Use asymmetrical balance by placing the cabin slightly to one side of the composition and using the large trees and mountains on the opposite side to balance its visual weight. Make the cabin and guitar larger and more detailed than the distant landscape so they become the main focal points. The overall scale should make the viewer feel small compared to the peaceful wilderness surrounding the cabin. 
+
+**Vocabulary Breakdown:**
+- Value: The lightness and darkness of a color.
+- Space: The room or capacity in a work of art.
+- Unity: How other elements look like together in a work of art.
+- Balance: The arrangement or distribution of shapes, colors, lines and textures in a piece of art.
+- Rhythm: Patterns that are created by repeated shapes, elements or colors. 
